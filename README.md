@@ -10,4 +10,4 @@
 
 这些平台汇集了丰富的亚洲AV精品视频资源，涵盖日韩及欧美多种题材，分类详细，方便用户快速查找。每个视频页面都含详细的时长、主演、画质等信息，支持高清播放，并根据网络状况自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua1 ）</span>
